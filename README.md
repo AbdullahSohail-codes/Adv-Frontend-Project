@@ -1,1 +1,1 @@
-By - ABDULLAH SOHAIL
+Developed By - ABDULLAH SOHAIL
